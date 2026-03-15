@@ -1,1 +1,1 @@
-local niggers
+local nigga
